@@ -1,1 +1,7 @@
-# salman-s.github.io
+![Linkedin-logo](https://github.com/SalmanDeveloperz/salman-s.github.io/assets/151463017/eb488a53-2f24-4ccf-a1f0-91acc0bd84ad)
+![instagram](https://github.com/SalmanDeveloperz/salman-s.github.io/assets/151463017/3941bae7-e538-461a-83d3-81318779053d)
+![IMG-20221224-WA0007](https://github.com/SalmanDeveloperz/salman-s.github.io/assets/151463017/9d5458b7-092a-4661-a06d-6b84407cbc7d)
+![github_PNG80](https://github.com/SalmanDeveloperz/salman-s.github.io/assets/151463017/b040e367-4731-4d9e-9ae0-2156019d77ee)
+![facebook-app-symbol](https://github.com/SalmanDeveloperz/salman-s.github.io/assets/151463017/b1305e29-6754-4822-9b48-31906121cd94)
+![youtube](https://github.com/SalmanDeveloperz/salman-s.github.io/assets/151463017/584e01f2-9316-4175-bf8c-f2e24ad3eea7)
+![whatsapp logo](https://github.com/SalmanDeveloperz/salman-s.github.io/assets/151463017/368bf5a3-cd93-4a19-8875-0fa983aa6bcb)
